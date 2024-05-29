@@ -1,4 +1,4 @@
-## Olá! Eu sou Tales Henrique, estudante de Análise e Desenvolimento de Sistemas ;)
+## Olá! Eu sou Tales Henrique, estudante de Análise e Desenvolimento de Sistemas
 
 
 
